@@ -2,4 +2,7 @@ Meu primeiro readme
 
 Jooj
 
-Raffa merdeira
+Raffa moreira é deus
+
+FVCK BRO EU TENHO MACONHA
+acho que dei um tiro na sua vó
